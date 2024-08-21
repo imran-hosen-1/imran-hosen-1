@@ -24,4 +24,4 @@ This GitHub account is my playground for showcasing my projects, whether small o
 
 Feel free to connect with me via email: [imranhosen00@proton.me](mailto:imranhosen00@proton.me). I’m open to networking opportunities, collaboration ideas, and discussions about all things tech!
 
-Thank you for visiting my GitHub profile! 🙌
+Thank you for visiting my GitHub profile! **Suuuiii!** 🙌 (Yes, I’m a big Ronaldo fan!)
